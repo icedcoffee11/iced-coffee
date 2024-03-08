@@ -1,2 +1,2 @@
-# Scott Muller
-Make South Australia Great Again
+# Scott W. Muller
+Goal: Make South Australia Great Again
